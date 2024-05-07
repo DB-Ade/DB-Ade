@@ -1,4 +1,4 @@
-Greetings,
+Greetings to you.
 Interested in versioning, writing and exprimenting with code on this platform
 ⚡ 🌱 💞️ 📫 ✨✨
 
